@@ -1,0 +1,2 @@
+# ndd
+solo haters
